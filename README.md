@@ -1,1 +1,0 @@
-[lite.sharavananpa.dev](https://lite.sharavananpa.dev/)
